@@ -8,3 +8,7 @@ OH NOES! You and your hot girlfriend teleported to this empty space,but just a h
 ## Note
 
 These files are the latest files I found on myfnf's itch.io page
+
+## Release date
+
+Some time in December of 2022
